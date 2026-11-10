@@ -10,7 +10,7 @@ This page is intended for servers who are attending the Setup and/or Cleanup par
 
 Only Old Students who have completed a ten-day course may come early for giving service for Set Up
 
-Please [CLICK HERE](https://forms.office.com/pages/responsepage.aspx?id=w06SogXju0iz5JS9lfi4MztRO9s0zm9LsYpY1o5DI2VURExXVFJWSE03MFQ0QkJES0FNQVQ3OFpQTC4u&origin=lprLink&route=shorturl) to sign up if you haven't
+Please [CLICK HERE](https://forms.cloud.microsoft/pages/responsepage.aspx?id=w06SogXju0iz5JS9lfi4MztRO9s0zm9LsYpY1o5DI2VUOEFHWTBSSEpPWU5ZWVBUS0FPWEZUMzhCSS4u&route=shorturl) to sign up if you haven't
 
 # Overview
 
